@@ -9,6 +9,8 @@ Hi there 👋
 - Here's some of my Certificate :
   - [Certificate Of SQL](https://github.com/Vannn76/Vannn76/files/13161079/sertifikat_course_600_3279783_130923193624.pdf)
   - [Certificate of GitHub](https://github.com/Vannn76/Vannn76/files/13161321/sertifikat_course_dicoding_GitHub.pdf)
+  - [Cerificate of Alibaba](https://github.com/Vannn76/Vannn76/assets/148648863/3a8912c9-f596-4b8e-a000-67200d75f514)
+
 
 <br>
 
